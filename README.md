@@ -1,2 +1,0 @@
-# ajithveee.github.io
-Portfolio
